@@ -1,4 +1,4 @@
-\# Mona Patra
+\# Monali Patra
 
 \### Control Systems Engineer | Bengaluru, India
 
